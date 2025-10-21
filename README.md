@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [linkedin.com/in/shahjad-ansari-bb0a4028b](linkedin.com/in/shahjad-ansari-bb0a4028b)
 
-- 📫 How to reach me **shahjad07qu@gmail.com**
+- 📫 How to reach me **shahjadansarikgn99@gmail.com**
 
 - ⚡ Fun fact **I am funny**
 
